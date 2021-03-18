@@ -1,1 +1,2 @@
 # kushagra.github.io
+HI I AM KUSHAGRA MANI FROM VIT BHOPAL
